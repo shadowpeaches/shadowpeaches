@@ -8,4 +8,4 @@ lego ninjago, monkie kid, identityv, skullgirls, league of legends & more!
 
 ⛩️ ៹ do not interact ៹ ៸៸
 
-basic criteria, proshippers, terfs/radfems, hate on sunwukong or aesop carl.
+basic criteria, proshippers, terfs/radfems, shadowpeach haters, peachnoodles shippers.
