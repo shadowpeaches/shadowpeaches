@@ -2,6 +2,6 @@
 
 🏮 ៹ interests ★ ៸៸ ninjago, monkiekid, identityv, skullgirls & league of legends. 
 
-🧧 ៹ ponytown criteria ★ ៸៸ boop/kisse/cuddle/hiding behind me = extremely welcome! 
+🧧 ៹ ponytown criteria ★ ៸៸ boop/kisse/cuddle/hiding behind me = ok! 
 
 ⛩️ ៹ do not interact ★ ៸៸ basic dni criteria, terfs/radfems, proshippers, nsfw rps.
