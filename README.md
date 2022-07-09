@@ -1,6 +1,7 @@
 🥢 ៹ valentino. 19 ៹ ៸៸
 
-he/they prns, taken & demisexual. 
+he/they prns, taken & demisexual.
+
 i'm a programmer and photographer! 
 my carrd https://macaques.carrd.co/
 
