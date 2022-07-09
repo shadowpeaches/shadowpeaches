@@ -8,7 +8,8 @@ lego ninjago, monkie kid, identityv, skullgirls, league of legends & more!
 
 🧧 ៹ before you interact ៹ ៸៸
 
-please whisper me to get my attention, minors please keep in mind i'm an adult,
+please whisper me to get my attention, minors please keep in mind i'm an adult, 
+-------
 i will hide you without explaining you why & do not copy or take inspo from my skins.
 
 ⛩️ ៹ do not interact ៹ ៸៸
