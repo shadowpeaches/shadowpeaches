@@ -21,4 +21,5 @@ please do not copy or take inspo from my skins.
 proshippers, terfs/radfems, basic dni crit.
 genshin, fnaf, okegom and danganronpa fandoms.
 (i know some of you are actually very nice but i 
+
 rather avoid the majority of the ppl on the fandom.) 
