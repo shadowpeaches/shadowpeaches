@@ -1,5 +1,5 @@
 🥢 ៹ valentino. 19 ៹ ៸៸
----
+--
 he/they prns, taken & demisexual. i'm a programmer & a photographer! 
 
 🏮 ៹ main interests ៹ ៸៸
