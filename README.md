@@ -17,6 +17,6 @@
 
 𝐃𝐍𝐈❜𝐒︙basic dni, terfs/radfems, proshippers. ✦ 
 
-🧧 ┊ 𝐏𝐎𝐍𝐘𝐓𝐎𝐖𝐍 ; boop, kiss, cuddle and hide 𝗢𝗞!°
+🧧︙𝐏𝐎𝐍𝐘𝐓𝐎𝐖𝐍 ; boop, kiss, cuddle and hide 𝗢𝗞!°
 
 ╰────────────────── •
