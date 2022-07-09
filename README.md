@@ -1,4 +1,4 @@
-🥢 ៹ valentino. 19 ៹ ៸៸
+🥢 ៹ valentino. 19 ៹ ៸៸ https://macaques.carrd.co/
 
 he/they prns, taken & demisexual. i'm a programmer & a photographer.
 
@@ -12,4 +12,4 @@ lego ninjago, monkie kid, identityv, skullgirls, league of legends & more.
 
 ⛩️ ៹ more abt me & dni's ៹ ៸៸
 
-my carrd https://macaques.carrd.co/
+basic dni criteria, problematic fandoms, terfs/radfems, proshippers, nsfw rps.
