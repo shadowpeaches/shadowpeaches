@@ -1,4 +1,4 @@
-🥢 ៹ valentino/naib. 19 ★ ៸៸ he/they prns, taken & demisexual! ៸៸ ENG - PT/BR
+🥢 ៹ valentino/naib. 19 ★ ៸៸ he/they prns, taken & demisexual! ៸៸ eng - pt/br
 
 🏮 ៹ interests ★ ៸៸ ninjago, monkiekid, identityv, skullgirls & league of legends. 
 
