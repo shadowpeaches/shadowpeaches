@@ -4,4 +4,4 @@
 
 ⛩️ ៹ do not interact ★ ៸៸ basic dni criteria, terfs/radfems, proshippers, nsfw rps.
 
-🧧 ៹ ponytown criteria ★ ៸៸ booping, kissing, cuddling and hiding behind me = OK! 
+🧧 ៹ ponytown criteria ★ ៸៸ booping, kissing, cuddling and hiding are OK! 
