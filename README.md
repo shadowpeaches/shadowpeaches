@@ -8,9 +8,8 @@ lego ninjago, monkie kid, identityv, skullgirls, league of legends & more!
 
 🧧 ៹ my ponytown criteria ៹ ៸៸
 
- boops, kisses and cuddles are extremely welcome! whisper me to get my attention. <3
+ boops, kisses and cuddles are extremely welcome & hiding behind me as well!
 
-⛩️ ៹ do not interact ៹ ៸៸
+⛩️ ៹ more abt me & dni's ៹ ៸៸
 
-proshippers, terfs/radfems, basic dni crit, genshin, fnaf, okegom & danganronpa.
-(i know some of you are actually very nice but i rather avoid those specific fandoms.) 
+https://macaques.carrd.co/
